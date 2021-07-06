@@ -1,0 +1,1 @@
+O curso tem sido muito bom, não contempla apenas questões de hard skills, mas também no desenvolvimento humano da pessoa.
